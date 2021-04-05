@@ -10,3 +10,7 @@ One afternoon, the crocodile was resting beside a stone near the pond, when two 
 water.The fishermen noticed that the pond had many fish. “Look! This pond is full of fish. Let’s come here tomorrow
 with our fishing net," said one of them. “I am surprised we have not seen this place before!" exclaimed the other.
 
+
+The crocodile heard all this. When the fishermen left, he slowly slipped into the pond and went straight to the fish. “You all had better leave this pond before dawn. 
+Early morning those two fishermen are going to come to this pond with their net," warned the crocodile.
+
